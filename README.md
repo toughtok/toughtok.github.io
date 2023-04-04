@@ -8,3 +8,8 @@
 
 
 6.4
+
+
+
+'I think my mentality determines my destiny. 
+I don't believe in fate, I believe in mentality.'
