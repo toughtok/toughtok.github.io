@@ -1,1 +1,1 @@
-Stable mind dwelled no karma
+#Stable mind dwelles no karma
