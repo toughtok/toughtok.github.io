@@ -1,1 +1,1 @@
-Strong mind dwelled no reason
+Stable mind dwelled no karma
