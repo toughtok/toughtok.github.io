@@ -1,2 +1,2 @@
 HEAD IN GARBAGE
-![Alt](photo20230430213754.jpg)
+![Alt](1.png)
