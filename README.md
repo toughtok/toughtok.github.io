@@ -1,1 +1,2 @@
-Stable mind dwelles no karma
+TODAY'S MOOD
+![Alt](images/1.png)
